@@ -1,2 +1,1 @@
-# hello-world
-for SDC310L
+Hi im Chelsea I'm 33 years old. I live in North Carolina. I'm going to ECPI of Virginia Beach for my degree in Computer Information and Science. I have three amazing little boy and i enjoy riding motorcycles in my free time.
